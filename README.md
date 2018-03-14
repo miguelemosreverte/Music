@@ -3,13 +3,13 @@ Here I upload compositions made using Musescore2
 
 Die Zauberflute is a fantastic place to take ideas from, and this specific timestamps I can never get rid of.
 
-Ten seconds from here beggining ussually contain fantastic musical ideas:
+Ten seconds from here beginning usually contain fantastic musical ideas:
 
 https://youtu.be/et27CpqBvBE?t=1036 (ending from Arie I,1 (Tamino) Dies Bildnis ist bezaubernd schön)
 
 ## auf wiedersehen!
 
-#### Ussually the thing with the endings of this opera is that voices combine in such a perfect manner, that any good ear would stop to appreciate the absolute precision in the notes, in the expressiveness achieved which such minimalism.
+#### Usually the thing with the endings of this opera is that voices combine in such a perfect manner, that any good ear would stop to appreciate the absolute precision in the notes, in the expressiveness achieved which such minimalism.
 Maybe the reason for why the notes reach such a climax when those words, (auf wiedersehen!), are pronounced, is because it was actually in the endings when Mozart could actually work free of oral restriction. The script of the opera, while fantastically written, may have been a restriction to the expressiveness of the composer, and thus the abnormal jump in quality when words stop changing and become repetitive chants, ready to be given musical meaning, and combined, at the endings.
 
 https://youtu.be/et27CpqBvBE?t=1545 
@@ -20,7 +20,7 @@ https://youtu.be/et27CpqBvBE?t=1631
 
 https://youtu.be/et27CpqBvBE?t=1783 
 (Dett I,2 (Pamina, Papageno) Bei Männern, welche Liebe fühlen)
-the entirity of this duet is basically, hands down, amazing to hear.
+the entirety of this duet is basically, hands down, amazing to hear.
 
 
 And this part!
