@@ -42,5 +42,6 @@ https://youtu.be/et27CpqBvBE?t=2627
 
 
 https://youtu.be/et27CpqBvBE?t=3883 (ending from Quintett II,2 (Damen, Papageno, Tamino) Wie, Wie, Wie)
+Perfection.
 
 https://youtu.be/et27CpqBvBE?t=4341 (excerpt from Terzett II,4 (Knaben) Seid uns zum zweitenmal wilkommen)
